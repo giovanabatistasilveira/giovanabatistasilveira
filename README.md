@@ -8,4 +8,4 @@ Meu nome é Giovana Batista
 
 ### Utilizo meu e-mail @escola 📧
 
-giovana.batista.silveira@escola.pr.gov.br
+
